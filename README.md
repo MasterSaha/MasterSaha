@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MasterSaha - Himanshu Saha
 - 👀 I’m interested in Data Analytics
-- 🌱 I’m currently learning Information Technology(Persuing Bachelors of Engineering)
+- 🌱 I’m currently learning Information Technology(Persuing Bachelor of Engineering(IT))
 - 💞️ I’m looking to collaborate on Anything Intreasting.
 - 📫 How to reach me -> connect.with.mastersaha@gmail.com
                      -> https://www.youtube.com/channel/UCkjd_CMjnm4rKr7TE3tqpDg
