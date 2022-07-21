@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MasterSaha - Himanshu Saha
-- 👀 I’m interested in Data Analytics & Cybersecurity
-- 🌱 I’m currently learning Information Technology(Persuing Bachelor of Engineering(IT))
-- 💞️ I’m looking to collaborate on Anything Intreasting.
+- 👀 I’m interested in Cybersecurity.
+- 🌱 I’m currently learning Network Analytics.
+- 💞️ I’m can to collaborate on Anything Intreasting.
 - 📫 How to reach me -> connect.with.mastersaha@gmail.com
                      -> https://www.youtube.com/channel/UCkjd_CMjnm4rKr7TE3tqpDg
                      -> https://www.instagram.com/himanshu.saha4/
